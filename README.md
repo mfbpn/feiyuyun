@@ -1,6 +1,6 @@
 # 飞鱼云机场官网地址
 
-最新地址：[feiyucloud.top](https://feiyucloud.top/#/register?code=3BWuM8FG)
+最新地址：[feiyucloud.top]()
 
 ## 飞鱼云介绍
 
